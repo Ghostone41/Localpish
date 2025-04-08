@@ -16,7 +16,6 @@ Star⭐ the repo if you like what you see😉.
 
 ![ddaffv](https://github.com/user-attachments/assets/d6ad25d1-e30f-48bd-a0bf-6aaf092e7352)
 
-![Screenshot (1114)](https://github.com/user-attachments/assets/3b3c9dad-779d-47b3-a8dc-f9113256e366)
 
 
 **THIS TOOL IS FOR EDUCATIONAL PURPOSES ONLY**
